@@ -42,7 +42,7 @@ am inclined to neglect this solemn duty.
 > employed to his own advantage or even should he propose to employ that time in acts of charity, or in acquiring means of 
 > benevolent relief to the needy, still it may be asked, does God require you to do good by neglecting duty, or to do evil that 
 > good may come of it?· Does he require you to do his will in one respect, by disregarding it in another? Certainly not. Let the 
-> objector examine carefully and prayerfully, his own heart, and he will find that the difficulty is a wantof disposition, not a want of time. 
+> objector examine carefully and prayerfully, his own heart, and he will find that the difficulty is a want of disposition, not a want of time. 
 
 ##Introduction
 
@@ -154,19 +154,19 @@ be proceeded with thankfulness to God for his grace and inumerable blessings. [N
 
 ###Notes on Prayer
 
-In order for prayer to be accepted by God, prayer is to be by faith, in the name of the Son of God, by the help of his 
+* In order for prayer to be accepted by God, prayer is to be by faith, in the name of the Son of God, by the help of his 
 Spirit, and according to God's will.
 
-The prayer of approach to God in response to his call to enter his presence for worship should express humble adoration, 
+* The prayer of approach to God in response to his call to enter his presence for worship should express humble adoration, 
 confess unworthiness and inability to worship aright. It should seek God's merciful acceptance through Jesus Christ, and 
 invoke gracious working of the Holy Spirit.
 
-The reading of God's law should be proceeded with a prayer of confession of sin.
+* The reading of God's law should be proceeded with a prayer of confession of sin.
 
-Pray for forgiveness through the blood, and a renewal through the Holy Spririt. Intercede for others including but not 
+* Pray for forgiveness through the blood, and a renewal through the Holy Spririt. Intercede for others including but not 
 limited to brethren. Pray in thanksgiving for mercies received, lament in times of distress.
 
-Pray for illumination by the Holy Spirit. And the application of the Word to the minds, hearts, and lives of the hearers. 
+* Pray for illumination by the Holy Spirit. And the application of the Word to the minds, hearts, and lives of the hearers. 
 Give thanks for the Word of Life.
 
 ##Informal Worship
