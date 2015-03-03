@@ -51,7 +51,7 @@ am inclined to neglect this solemn duty.
 
 It is my utmost desire to conduct family worship in a manner which will ultimately further the Glory of our Lord. Though I
 know my own sinfulness shall ultimately hinder the progress which I hope to make. May the Lord grant me strength in
-<!-- shepherding the family he has commited to my trust. It is my firm belief he will do so in all faithfulness and that any flaw in -->
+shepherding the family he has commited to my trust. It is my firm belief he will do so in all faithfulness and that any flaw in
 the execution or the results of the undertaking will be my own doing. May we never forget the blessed gift our Lord has given
 us in allowing us to worship him. May I faithfully make use of the grace he so mercifully bestows.
 
