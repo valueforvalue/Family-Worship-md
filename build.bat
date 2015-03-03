@@ -1,0 +1,1 @@
+pandoc -s -c foghornleghorn.css FamilyWorship.md -o FamilyWorship.html

@@ -8,7 +8,7 @@ am inclined to neglect this solemn duty.
 
  In doing so I will quote a very informative section from The Importance of Family Religion by: S.G. Winchester.
 
-> The first objection we shall notice, is the want of time, properly and >statedly to perform this duty.
+> The first objection we shall notice, is the want of time, properly and statedly to perform this duty.
 > It may be safely taken for granted, that there can not be conflicting duties. That which an undoubted duty renders
 > impossible to be done, can not itself be duty. This would suppose derangement in the government and plans of God, which is
 > wholly inadmissible. If, then, family worship be an obvious duty, we can not be warranted in occupying the time in which it
@@ -51,7 +51,7 @@ am inclined to neglect this solemn duty.
 
 It is my utmost desire to conduct family worship in a manner which will ultimately further the Glory of our Lord. Though I
 know my own sinfulness shall ultimately hinder the progress which I hope to make. May the Lord grant me strength in
-shepherding the family he has commited to my trust. It is my firm belief he will do so in all faithfulness and that any flaw in
+shepherding the family he has committed to my trust. It is my firm belief he will do so in all faithfulness and that any flaw in
 the execution or the results of the undertaking will be my own doing. May we never forget the blessed gift our Lord has given
 us in allowing us to worship him. May I faithfully make use of the grace he so mercifully bestows.
 
@@ -71,12 +71,12 @@ to take solid root. S. G. Winchester in his: The Importance of Family Religion s
 
 ###Reminder
 
-I make it my purpose from henceforth to conduct the family worship in such a way as to eliminate a woodeness of
+I make it my purpose from henceforth to conduct the family worship in such a way as to eliminate a woodenness of
 worship, which in my estimation would harden the hearts of both young and old worshipers toward a most merciful and
 faithful Saviour and Lord. That being said, I consider it my duty to conduct our family worship in such a manner as to instill an
-awe and reverance toward our Lord and Saviour. Therefore care must be taken in the method of worship, order must be set
+awe and reverence toward our Lord and Saviour. Therefore care must be taken in the method of worship, order must be set
 forth in its execution to make known the seriousness of the undertaking. However order must not be practiced in excess, as
-it would tend to legalism or a ritualism which would veil the mercy and lovingkindness of the Lord our God, and hinder the
+it would tend to legalism or a ritualism which would veil the mercy and loving-kindness of the Lord our God, and hinder the
 grace so mercifully bestowed upon us by his Holy Spirit.
 
 ###Prayer for the Lord's blessing:
@@ -92,7 +92,7 @@ pray these things in the name of Jesus Christ. Amen
 ###Preparation for Worship
 
 Each member of the household should engage in a private prayer with the Lord before coming to worship corporately.
-They should do so to promote a proper spirit, one of reverance and awe for the Lord and the reading of his Word.
+They should do so to promote a proper spirit, one of reverence and awe for the Lord and the reading of his Word.
 
 ###Call to Worship
 
@@ -137,7 +137,7 @@ We will be selective in our choice of hymns, they will need to reflect sound doc
 
  The exposition of the Lords word will be done in each worship service in accordance with the head of households ability.
 
-* Remember not to seperate Christian duty from Christian faith.
+* Remember not to separate Christian duty from Christian faith.
 * Proclaim the Gospel without adulteration.
 * The whole council of God is to be expounded.
 * Warn of the dangers of the enemy.
@@ -146,10 +146,10 @@ We will be selective in our choice of hymns, they will need to reflect sound doc
 ###Benediction
 
 The benediction is not simply a prayer, it is an announcement of the grace bestowed by God upon his children. It should
-be proceeded with thankfulness to God for his grace and inumerable blessings. [Num 6:24-26 or 2 Cor 13:14]
+be proceeded with thankfulness to God for his grace and innumerable blessings. [Num 6:24-26 or 2 Cor 13:14]
 
 * The grace principle and the Immanuel principle are still in effect. "I will be a God to you, and you will be my people."
-* The Immanuel principle is secured in Christ our saviour.
+* The Immanuel principle is secured in Christ our Saviour.
 * We are not our own we belong to Christ.
 * His name is written upon us.
 
@@ -164,7 +164,7 @@ invoke gracious working of the Holy Spirit.
 
 * The reading of God's law should be proceeded with a prayer of confession of sin.
 
-* Pray for forgiveness through the blood, and a renewal through the Holy Spririt. Intercede for others including but not
+* Pray for forgiveness through the blood, and a renewal through the Holy Spirit. Intercede for others including but not
 limited to brethren. Pray in thanksgiving for mercies received, lament in times of distress.
 
 * Pray for illumination by the Holy Spirit. And the application of the Word to the minds, hearts, and lives of the hearers.
