@@ -1,7 +1,7 @@
-﻿
-#Directory of Family Worship
 
-##Preface
+# Directory of Family Worship
+
+## Preface
 
 In the first place I would like to address the objections to family worship, I do so for myself in the future if ever (God forbid) I
 am inclined to neglect this solemn duty.
@@ -45,9 +45,9 @@ am inclined to neglect this solemn duty.
 > good may come of it?· Does he require you to do his will in one respect, by disregarding it in another? Certainly not. Let the
 > objector examine carefully and prayerfully, his own heart, and he will find that the difficulty is a want of disposition, not a want of time.
 
-##Introduction
+## Introduction
 
-###Purpose of Family Worship
+### Purpose of Family Worship
 
 It is my utmost desire to conduct family worship in a manner which will ultimately further the Glory of our Lord. Though I
 know my own sinfulness shall ultimately hinder the progress which I hope to make. May the Lord grant me strength in
@@ -67,9 +67,9 @@ to take solid root. S. G. Winchester in his: The Importance of Family Religion s
 >those who have the charge of families to train them up with a special view to this declared end, otherwise it would be
 >presumption to expect that this end will be answered.
 
-##Direction
+## Direction
 
-###Reminder
+### Reminder
 
 I make it my purpose from henceforth to conduct the family worship in such a way as to eliminate a woodenness of
 worship, which in my estimation would harden the hearts of both young and old worshipers toward a most merciful and
@@ -79,7 +79,7 @@ forth in its execution to make known the seriousness of the undertaking. However
 it would tend to legalism or a ritualism which would veil the mercy and loving-kindness of the Lord our God, and hinder the
 grace so mercifully bestowed upon us by his Holy Spirit.
 
-###Prayer for the Lord's blessing:
+### Prayer for the Lord's blessing:
 
 Merciful Heavenly Father, I humbly ask your blessing upon the method of family worship I will describe here. I thank you
 for the gift of worship, and ask for your guidance in its proper execution. We are sinful and wretched, deserving to be brought
@@ -87,23 +87,23 @@ to nothing before you, the most Holy one. Father I ask that you restrain our sin
 your sight. Conform us to the image of your Son our blessed Lord and Saviour Jesus Christ by the power of your Holy Spirit. I
 pray these things in the name of Jesus Christ. Amen
 
-##Formal Worship
+## Formal Worship
 
-###Preparation for Worship
+### Preparation for Worship
 
 Each member of the household should engage in a private prayer with the Lord before coming to worship corporately.
 They should do so to promote a proper spirit, one of reverence and awe for the Lord and the reading of his Word.
 
-###Call to Worship
+### Call to Worship
 
 The call to worship will be done, ordinarily, by reading from the Psalms. [Psalm 95, 96, 100 as examples.]
 
-###Salutation
+### Salutation
 
 The salutation will be one from scripture such as: "Grace and peace to you from God our Father and the Lord Jesus
 Christ." or "Grace and peace be yours in abundance through the knowledge of God and of Jesus our Lord."
 
-###Opening Prayer
+### Opening Prayer
 
 The opening prayer will ask God to be present in the worship service by the power of his Holy Spirit, through which we
 are sanctified and conformed to the image of Christ. Thanking him for the mediatorship of his Son Jesus Christ which enabled
@@ -117,7 +117,7 @@ the Holy Spirit.
 Pray for illumination by the Holy Spirit. And the application of the Word to the minds, hearts, and lives of the hearers.
 Give thanks for the Word of Life.
 
-###Scripture Reading
+### Scripture Reading
 
 There will be a Scripture reading from the New and Old Testaments. Specific sections of Scripture will be selected
 beforehand. The Law of God will be frequently read, proceeded by a prayer of confession of sins.
@@ -125,7 +125,7 @@ beforehand. The Law of God will be frequently read, proceeded by a prayer of con
 * Unison reading of Psalms addressed to Gods people read in an alternating per stanza form will be done on occasion.
 * Antiphonal reading of Psalms addressed to God from his people read in an alternating per stanza form will be done on occasion.
 
-###Singing
+### Singing
 
 We will be selective in our choice of hymns, they will need to reflect sound doctrine. The Psalms will be a frequent choice.
 
@@ -133,7 +133,7 @@ We will be selective in our choice of hymns, they will need to reflect sound doc
 * **We will** sing for the Glory of God, and the building up of the saints.
 * **We will not** sing for entertainment or to praise men.
 
-###Mini-Sermon
+### Mini-Sermon
 
  The exposition of the Lords word will be done in each worship service in accordance with the head of households ability.
 
@@ -143,7 +143,7 @@ We will be selective in our choice of hymns, they will need to reflect sound doc
 * Warn of the dangers of the enemy.
 * Take care to emphasize Christ and his sacrifice, to the exclusion of works and earthly wisdom.
 
-###Benediction
+### Benediction
 
 The benediction is not simply a prayer, it is an announcement of the grace bestowed by God upon his children. It should
 be proceeded with thankfulness to God for his grace and innumerable blessings. [Num 6:24-26 or 2 Cor 13:14]
@@ -153,7 +153,7 @@ be proceeded with thankfulness to God for his grace and innumerable blessings. [
 * We are not our own we belong to Christ.
 * His name is written upon us.
 
-###Notes on Prayer
+### Notes on Prayer
 
 * In order for prayer to be accepted by God, prayer is to be by faith, in the name of the Son of God, by the help of his
 Spirit, and according to God's will.
@@ -170,19 +170,19 @@ limited to brethren. Pray in thanksgiving for mercies received, lament in times 
 * Pray for illumination by the Holy Spirit. And the application of the Word to the minds, hearts, and lives of the hearers.
 Give thanks for the Word of Life.
 
-##Informal Worship
+## Informal Worship
 
-###Catechism Questions
+### Catechism Questions
 
 We will engage in a systematic study of the Larger and Smaller Catechisms, as well as the one for Boys and Girls. In
 doing so we hope to be more prepared to give a reason for the hope that is in us and to be better equipped to further the
 glory of our Lord in all the earth.
 
-###Confession of Faith
+### Confession of Faith
 
 To better understand the fundamental doctrine of our faith we will engage in a systematic study of the Westminster
 confession of faith, and also the 1689 London Baptist confession.
 
-###Creeds
+### Creeds
 
 We will memorize the Apostles Creed or the Nicene Creed for the purpose of orderly public confession of our faith.
