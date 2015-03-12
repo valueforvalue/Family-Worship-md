@@ -16,6 +16,11 @@ header, nav, article, footer {
 	width: 700px;
 	margin:0 auto;
 	}
+	
+.pagebreak
+{
+	page-break-after: always;
+}
 article {
 	margin-top: 4em;
 	margin-bottom: 4em;

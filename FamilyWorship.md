@@ -125,6 +125,8 @@ beforehand. The Law of God will be frequently read, proceeded by a prayer of con
 * Unison reading of Psalms addressed to Gods people read in an alternating per stanza form will be done on occasion.
 * Antiphonal reading of Psalms addressed to God from his people read in an alternating per stanza form will be done on occasion.
 
+<div class="pagebreak"></div>
+
 ### Singing
 
 We will be selective in our choice of hymns, they will need to reflect sound doctrine. The Psalms will be a frequent choice.
