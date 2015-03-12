@@ -3,47 +3,47 @@
 
 ## Preface
 
-In the first place I would like to address the objections to family worship, I do so for myself in the future if ever (God forbid) I
+In the first place I would like to address the objections to family worship, I do so for myself in the future if ever, God forbid, I
 am inclined to neglect this solemn duty.
 
- In doing so I will quote a very informative section from The Importance of Family Religion by: S.G. Winchester.
+ In doing so I will quote a very informative section from *The Importance of Family Religion* by: S.G. Winchester.
 
-> The first objection we shall notice, is the want of time, properly and statedly to perform this duty.
-> It may be safely taken for granted, that there can not be conflicting duties. That which an undoubted duty renders
-> impossible to be done, can not itself be duty. This would suppose derangement in the government and plans of God, which is
-> wholly inadmissible. If, then, family worship be an obvious duty, we can not be warranted in occupying the time in which it
-> should be performed, in doing any thing else. If it be a duty at all, it must also be a duty to employ some time in performing it,
-> and it can not be our duty to employ this time in doing something else. Whatever we do, therefore, when we should be
-> attending to family devotion, is sinfully done, and in direct opposition to the will of God; and to plead the one as an excuse for
-> the neglect of the other, is to plead one sin in extenuation of another. The time which should be employed in serving God, is
-> his time, and not ours. When he demands a service, he also demands the necessary time for its performance. This is evident.
-> Now if that time be otherwise employed, it is withholding from God that which is his due. It is robbing God of what rightfully
-> belongs to him. If your servant should neglect to perform the service for which you have bargained with him, and plead the
-> want of time as his excuse, what would be your reply? Would it not be—"in bargaining for your service, I bargained for all the
-> time that the service requires; and to appropriate that time to your own or other purposes, is to deprive me of what is my
-> legal and rightful due?" If this would be your reply, as I apprehend it would be, then you have furnished an answer to your
-> own objection. On what ground do you presume upon success in any business, that is transacted at the expense of God’s
-> rights? Should you prosper in life, notwithstanding this disregard of his claim, may you not justly conclude that he is
-> permitting you to fill up the cup of your iniquity, and that he has deferred the settlement of his account with you, to the day of
-> righteous retribution? May not your success in worldly gain, be regarded as a fearful premonition of coming vengeance? You
-> may have, as many others have, your portion in this life. What an awful thought! What a still more awful reality!!
->
-> If the business in which you are engaged, be an unlawful calling, how greatly aggravated is the guilt of occupying God’s
-> time in prosecuting it! Men, generally, are not sufficiently impressed with a sense of their entire dependence on God; for
-> success in their worldly affairs. They acknowledge it as a theoretic truth, but are not habitually influenced by the belief of it.
-> "Except God build the. house, they labour in vain that build it." Ps. 127:1. Men are also slow to credit that important
-> declaration of Scripture, "Godliness is profitable unto all things, having promise of the life that now is, and of that which is to
-> come." They do not practically believe the promise annexed to the injunction; "seek first the kingdom of God and his
-> righteousness, AND ALL THESE THINGS SHALL BE ADDED UNTO YOU." This objection is not unlike that which Judas made to
-> Mary’s anointing the head and feet of Christ with precious ointment. He thought it might be otherwise employed to greater
-> advantage. But Christ said, "wheresoever this gospel shall be preached in the whole world, there shall also this, that this
-> woman hath done, be told for a memorial of her." This objection asks, "to what purpose is this waste" of time? Judas, indeed,
-> in making the objection, professed great solicitude for the poor, to whose relief he supposed the price of the ointment might
-> be more piously applied. But here the objector supposes that the time required for family devotion, might be otherwise
-> employed to his own advantage or even should he propose to employ that time in acts of charity, or in acquiring means of
-> benevolent relief to the needy, still it may be asked, does God require you to do good by neglecting duty, or to do evil that
-> good may come of it?· Does he require you to do his will in one respect, by disregarding it in another? Certainly not. Let the
-> objector examine carefully and prayerfully, his own heart, and he will find that the difficulty is a want of disposition, not a want of time.
+>The first objection we shall notice, is the want of time, properly and statedly to perform this duty.
+It may be safely taken for granted, that there can not be conflicting duties. That which an undoubted duty renders
+impossible to be done, can not itself be duty. This would suppose derangement in the government and plans of God, which is
+wholly inadmissible. If, then, family worship be an obvious duty, we can not be warranted in occupying the time in which it
+should be performed, in doing any thing else. If it be a duty at all, it must also be a duty to employ some time in performing it,
+and it can not be our duty to employ this time in doing something else. Whatever we do, therefore, when we should be
+attending to family devotion, is sinfully done, and in direct opposition to the will of God; and to plead the one as an excuse for
+the neglect of the other, is to plead one sin in extenuation of another. The time which should be employed in serving God, is
+his time, and not ours. When he demands a service, he also demands the necessary time for its performance. This is evident.
+Now if that time be otherwise employed, it is withholding from God that which is his due. It is robbing God of what rightfully
+belongs to him. If your servant should neglect to perform the service for which you have bargained with him, and plead the
+want of time as his excuse, what would be your reply? Would it not be—"in bargaining for your service, I bargained for all the
+time that the service requires; and to appropriate that time to your own or other purposes, is to deprive me of what is my
+legal and rightful due?" If this would be your reply, as I apprehend it would be, then you have furnished an answer to your
+own objection. On what ground do you presume upon success in any business, that is transacted at the expense of God’s
+rights? Should you prosper in life, notwithstanding this disregard of his claim, may you not justly conclude that he is
+permitting you to fill up the cup of your iniquity, and that he has deferred the settlement of his account with you, to the day of
+righteous retribution? May not your success in worldly gain, be regarded as a fearful premonition of coming vengeance? You may have, 
+as many others have, your portion in this life. What an awful thought! What a still more awful reality!!
+
+>If the business in which you are engaged, be an unlawful calling, how greatly aggravated is the guilt of occupying God’s
+time in prosecuting it! Men, generally, are not sufficiently impressed with a sense of their entire dependence on God; for
+success in their worldly affairs. They acknowledge it as a theoretic truth, but are not habitually influenced by the belief of it.
+"Except God build the. house, they labour in vain that build it." Ps. 127:1. Men are also slow to credit that important
+declaration of Scripture, "Godliness is profitable unto all things, having promise of the life that now is, and of that which is to
+come." They do not practically believe the promise annexed to the injunction; "seek first the kingdom of God and his
+righteousness, AND ALL THESE THINGS SHALL BE ADDED UNTO YOU." This objection is not unlike that which Judas made to
+Mary’s anointing the head and feet of Christ with precious ointment. He thought it might be otherwise employed to greater
+advantage. But Christ said, "wheresoever this gospel shall be preached in the whole world, there shall also this, that this
+woman hath done, be told for a memorial of her." This objection asks, "to what purpose is this waste" of time? Judas, indeed,
+in making the objection, professed great solicitude for the poor, to whose relief he supposed the price of the ointment might
+be more piously applied. But here the objector supposes that the time required for family devotion, might be otherwise
+employed to his own advantage or even should he propose to employ that time in acts of charity, or in acquiring means of
+benevolent relief to the needy, still it may be asked, does God require you to do good by neglecting duty, or to do evil that
+good may come of it?· Does he require you to do his will in one respect, by disregarding it in another? Certainly not. Let the
+objector examine carefully and prayerfully, his own heart, and he will find that the difficulty is a want of disposition, not a want of time.
 
 ## Introduction
 
@@ -60,12 +60,12 @@ to take solid root. S. G. Winchester in his: The Importance of Family Religion s
 
 
 >GOD, the Creator of man, established the family constitution. "God setteth the solitary in families," Ps. 68:6. As to the
->design of this constitution, we are expressly informed in Malachi 2:15. "And did not he make one? Yet had he the residue of
->the Spirit. And wherefore one? That he might seek a godly seed." And it is declared that "a seed shall serve him," Ps. 22:30.
->When God ordains an end, all the means requisite for its accomplishment are necessarily implied, and sometimes specifically
->prescribed. If then the design of God, in the family constitution, be to raise up a holy seed to serve him, it is incumbent on
->those who have the charge of families to train them up with a special view to this declared end, otherwise it would be
->presumption to expect that this end will be answered.
+design of this constitution, we are expressly informed in Malachi 2:15. "And did not he make one? Yet had he the residue of
+the Spirit. And wherefore one? That he might seek a godly seed." And it is declared that "a seed shall serve him," Ps. 22:30.
+When God ordains an end, all the means requisite for its accomplishment are necessarily implied, and sometimes specifically
+prescribed. If then the design of God, in the family constitution, be to raise up a holy seed to serve him, it is incumbent on
+those who have the charge of families to train them up with a special view to this declared end, otherwise it would be
+presumption to expect that this end will be answered.
 
 ## Direction
 
