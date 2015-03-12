@@ -117,6 +117,8 @@ the Holy Spirit.
 Pray for illumination by the Holy Spirit. And the application of the Word to the minds, hearts, and lives of the hearers.
 Give thanks for the Word of Life.
 
+<div class="pagebreak"></div>
+
 ### Scripture Reading
 
 There will be a Scripture reading from the New and Old Testaments. Specific sections of Scripture will be selected
@@ -124,8 +126,6 @@ beforehand. The Law of God will be frequently read, proceeded by a prayer of con
 
 * Unison reading of Psalms addressed to Gods people read in an alternating per stanza form will be done on occasion.
 * Antiphonal reading of Psalms addressed to God from his people read in an alternating per stanza form will be done on occasion.
-
-<div class="pagebreak"></div>
 
 ### Singing
 
